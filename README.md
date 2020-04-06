@@ -1,0 +1,2 @@
+# akash
+Free fire hack
